@@ -2,7 +2,7 @@
 
 My name is Emanuelly regina, but you can call me ✨ _Manu_ ✨ 
 
-- i'm studying on Alura
+- i'm studying on [Alura](https://www.alura.com.br)
 
 - im new on this app
 
