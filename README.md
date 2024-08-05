@@ -7,3 +7,8 @@ My name is Emanuelly regina, but you can call me ✨ _Manu_ ✨
 - im new on this app
 
 - a good person, you will like me 🙃
+  
+### you can contact me 📧
+
+emanuellyregina7@gmail.com
+__.Manum.__
